@@ -1,0 +1,2 @@
+<img width="1414" height="2000" alt="Project Proposal PInk Blue Professional Typographic Report" src="https://github.com/user-attachments/assets/a4cbad6b-14d9-4c23-926e-e574200ebf85" />
+This document, titled "Digital Literacy: Your Academic Power-Up," serves as a concise guide to navigating the digital world effectively and safely. It defines digital literacy as the ability to locate, assess, and share information across various online platforms
